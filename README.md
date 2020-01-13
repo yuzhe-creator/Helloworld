@@ -1,2 +1,3 @@
 # Helloworld
-Learning~
+Learning~!
+I am new here, but i am going to be a tycoon!!!
